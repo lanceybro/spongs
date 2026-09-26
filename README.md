@@ -2,3 +2,4 @@
 <p align="center"><sub>HE/HIM  <ins><b>MINOR (IWEC PPL OVER 21+)</b></ins> INFJ
 
 <p align="center"><sup> <ins> sign ata is appreciated !! i love friends !! 0_X </ins> </sup>
+
